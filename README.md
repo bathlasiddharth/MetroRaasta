@@ -11,5 +11,4 @@ This is a free version of the app and in the coming months we will be looking to
 We all at Batliboy Corp hope that you will enjoy this app and feel free to review it and send us your feedback.
 
 Cheers and happy navigation,
-
 Batliboy Corp
